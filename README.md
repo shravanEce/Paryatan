@@ -1,0 +1,2 @@
+# Paryatan
+static tourism
